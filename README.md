@@ -1,0 +1,1 @@
+The respiratory system is a vital organ system responsible for the exchange of gases, primarily oxygen and carbon dioxide, between the body and the environment. It plays a crucial role in supplying oxygen to the bloodstream and removing carbon dioxide, a waste product of cellular metabolism.
